@@ -22,6 +22,9 @@ Sky Scrapper 1 - 2021
 ![magazine troue](IMG_9915.jpg)
 Cockworks - 2021
 
+![LIT](rafael_moreno_horsdelanuit-18.jpg)
+Industrial Poems - 2023
+
 ![Livre strategies](Moreno-Rafael-Strategies.JPG)
 Strategies - 2022
 
@@ -43,3 +46,8 @@ Industrial Poems - 2023
 ![Danseuse Gaudel Table](Deposession.jpg)
 Dispossession - 2023
 
+![Mannequin table repasser](rafael-moreno-montrouge-14.jpg)
+Industrial Poems - 2023
+
+![Twin towers](P2100497.jpg)
+BONERS - 2022
