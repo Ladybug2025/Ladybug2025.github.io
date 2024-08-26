@@ -7,6 +7,9 @@ rafaelmoreno000@gmail.com
 ![mannequin bibliotheque fissure](images/la-fissure-41.jpg) 
 Pinnochia Tales - 2024
 
+![Tour Palais](rafael_moreno_horsdelanuit-8.jpg)
+Industrial Poems - 2023
+
 ![mannequin assise](la-fissure-28.jpg) 
 Pinnochia Tales - 2024
 
@@ -30,4 +33,13 @@ Sky Scrapper 2 - 2021
 
 ![Montrouge Table](rafael-moreno-montrouge-29.jpg)
 Industrial Poems - 2023
+
+![EMPIRE](Moreno-Rafael-Empire_2.jpg)
+EMPIRE - 2022
+
+![Mannequin Palais](rafael_moreno_horsdelanuit-26.jpg)
+Industrial Poems - 2023
+
+![Danseuse Gaudel Table](Deposession.jpg)
+Dispossession - 2023
 
