@@ -16,7 +16,7 @@ Red Rain - 2022
 ![Frigo 1](IMG_0120.jpg)
 Sky Scrapper 1 - 2021
 
-![magazine troue](magaz)
+![magazine troue](IMG_9915.jpg)
 Cockworks - 2021
 
 ![Livre strategies](Moreno-Rafael-Strategies.JPG)
