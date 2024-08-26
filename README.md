@@ -16,7 +16,7 @@ Red Rain - 2022
 ![Frigo 1](IMG_0120.jpg)
 Sky Scrapper 1 - 2021
 
-![magazine troue](IMG_9915 copy.jpg)
+![magazine troue](IMG_9915copy.jpg)
 Cockworks - 2021
 
 ![Livre strategies](Moreno-Rafael-Strategies.JPG)
@@ -25,7 +25,7 @@ Strategies - 2022
 ![Mannequin Troue](P2100492.jpg)
 Untitled - 2021
 
-![cravatte frigo ](SKY SCRAPER 1 & 2 - Rafael Moreno 2022 - Credits Raphael Massart__.jpg)
+![cravatte frigo ](SKYSCRAPER1&2-RafaelMoreno2022-CreditsRaphaelMassart__.jpg)
 Sky Scrapper 2 - 2021
 
 ![Montrouge Table](rafael-moreno-montrouge-29.jpg)
