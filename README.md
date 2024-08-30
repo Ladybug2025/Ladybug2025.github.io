@@ -4,6 +4,8 @@ rafaelmoreno000@gmail.com
 
 @nosenorita
 
+[LINK CV](https://docs.google.com/document/d/1zsC-2kSOl-p7uAuw1pAw71pXqPpVPDfb4MOG8Q6cA5c/edit?usp=sharing)
+
 ![mannequin bibliotheque fissure](images/la-fissure-41.jpg) 
 Pinnochia Tales - 2024
 
