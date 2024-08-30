@@ -10,8 +10,8 @@ Pinnochia Tales - 2024
 ![Tour Palais](rafael_moreno_horsdelanuit-8.jpg)
 Industrial Poems - 2023
 
-![Toure Etablissement](Etablissement - piece.jpg)
-Industrial Poems - 2023
+![Toure Etablissement](Etablissement-piece.jpg)
+She Changes All The Time (for Margot) - 2024
 
 ![mannequin assise](la-fissure-28.jpg) 
 Pinnochia Tales - 2024
